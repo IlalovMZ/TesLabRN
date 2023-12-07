@@ -1,1 +1,1 @@
-# Created by Ilalov Myaks for TES Lab
+# Created by Ilalov Maks for TES Lab
